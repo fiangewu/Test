@@ -1,9 +1,4 @@
-hello world
-wujiaxiong
-fiange
-haha
-bbaaa
-testing
+之前的英文都清干净
 777777777777777777
 999999999999999999
 888888888888888888
